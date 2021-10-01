@@ -2,6 +2,6 @@
 
    GK ADA APA² KAWAN
    
-   SUB AJA ZEEONE OFC
+   SUB AJA TAPI BOONG
    
 */
